@@ -1,0 +1,5 @@
+- 👋 Heya, I am Erias, ruler of <insert your dad's name here>
+- 👀 I like making stupid mods for fabricMC and reprogramming children. (My daughter is an AI, it's fine)
+- 🌱 I'm in the proccess of learning how to be a functioning member of society. Also how to not kill everyone that pisses me off.
+- 💞️ I’m looking for a hot dud whose dad I can smash.
+- 📫 How to reach me, you ask? Ez, just wait for me to finish up in your dad's room (Nah, you can contact me at PrinceErias@outlook.com)
